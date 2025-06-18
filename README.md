@@ -1,1 +1,1 @@
-I'm just a chill guy🤍🐈‍⬛🐈
+I'm just a chill guy
